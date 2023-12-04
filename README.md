@@ -28,6 +28,7 @@ Keep in mind that a dog requires your utmost care and attention, do not get one 
 2. They give you the company you need
    
  ![hugdog](https://tse1.mm.bing.net/th?id=OIP.dQOMHCB2uw6po90S6aRNOgHaE8&pid=Api&P=0&h=180)
+ 
 3. Dogs can serve many purposes, one popular purpose is being a service animal for people with diseases or ailments
 
 ![servicedog](https://tse4.mm.bing.net/th?id=OIP.xXcAAo-BPa5fpAD2aSRAXwHaE7&pid=Api&P=0&h=180)
